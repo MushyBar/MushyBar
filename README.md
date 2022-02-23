@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MushyBar
+- 👀 I’m interested in VRchat and VRoid.
+- 🌱 I’m currently learning how to make VRchat avatars
+- 💞️ I’m looking to collaborate on Vrchat
+- 📫 How to reach me mercy.swarts@icloud.com-Messages and email only!
